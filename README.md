@@ -1,7 +1,8 @@
   ‌  ‌  ‌  ‌  ‌  ‌  ‌   ‌  ‌  ‌ [atabook](https://squiirrel.atabook.org) ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌    ‌‌  ‌  ‌   ☆  ‌  ‌  ‌  ‌‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌[strawpage](https://squiirrel.straw.page/)
 ![tumblr_177bfd5f02954002514accd1869c42e1_6087d096_1280](https://github.com/user-attachments/assets/d5d3d0e7-590f-4559-9485-af8248830019)
 
-![1000130802](https://github.com/user-attachments/assets/007df2fc-630c-4b73-9498-f49556cfd09a)
+![1000130806](https://github.com/user-attachments/assets/65f1bd85-4ad6-4aae-8745-51346e778b9a)
+
 
  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌ ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌            ‌  [rentry](https://rentry.co/deanpup) ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌ ‌  ‌  ‌  ‌
 ‌  ‌‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌ ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌ ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌                 ‌  ‌    ‌  ‌  ‌  ‌ ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌ ‌  ‌  ‌  ‌  ‌  ‌  ‌ 
